@@ -50,11 +50,10 @@ https://user-images.githubusercontent.com/126940409/222917045-2c73661d-56e1-411f
 Telegram : https://t.me/spoof0x
 
 
-
-
-
-
 joinGroup : https://t.me/xZeroOfficial
+
+
+ICQ : @Spoof0x
 
 
 
